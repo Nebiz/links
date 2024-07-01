@@ -14,10 +14,6 @@
 - https://www.tokyvideo.com/
 - https://1movieshd.cc/home
 - Harry Potter: https://jemstreamingvqc.home.blog/harry-potter-vfq/
-- 
-- <a href="https://www2.hds-streaming.to/" target="_blank">Hola1</a>
-- [Hola2](https://www2.hds-streaming.to/){:target="_blank"}
-- [Hola3](https://juststream.mov/){target="_blank"}
 
 ## English Film
 - 
